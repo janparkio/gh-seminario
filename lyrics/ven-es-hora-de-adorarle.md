@@ -1,4 +1,4 @@
-[Alabanzas](app://obsidian.md/alabanza) | [Siguiente →](dios-de-promesas)
+[Alabanzas](../alabanza) | [Siguiente →](dios-de-promesas)
 # Ven, Es Hora De Adorarle
 **Autor:** Marco Barrientos
 
