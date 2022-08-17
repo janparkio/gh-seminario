@@ -1,5 +1,6 @@
+[Alabanzas](app://obsidian.md/alabanza) | [Siguiente →](dios-de-promesas)
 # Ven, Es Hora De Adorarle
-[Marco Barrientos](https://genius.com/artists/Marco-barrientos)
+**Autor:** Marco Barrientos
 
 Ven, es hora de adorarle  
 Ven, habre tu corazón a el  

@@ -1,5 +1,6 @@
+[Alabanzas](../alabanza) | [Siguiente →](indudablemente)
 # Dios de Promesas
-Doris Machin
+**Autor:** Doris Machin
 
 Se Que Tus Ojos
 Siempre Atentos

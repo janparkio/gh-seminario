@@ -1,3 +1,3 @@
 # GH - Seminario
 
-[Alabanzas del día](/alabanza)
+[Alabanzas del día](alabanza)
