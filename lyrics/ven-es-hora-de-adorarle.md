@@ -8,7 +8,7 @@ Ven, ante su trono estamos
 Ven, ante la majestad de dios, ven  
 
 #### Coro  
-Toda lengua confesará que el es dios  
+Toda lengua confesará que el es Dios  
 Las rodillas se doblarán  
 Y un tesoro eterno tendrás en el  
 Si escojes su amor  
